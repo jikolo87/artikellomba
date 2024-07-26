@@ -3,12 +3,12 @@
 #Rames
 
 ```
-#TOINKTOTO*jokobodo68*424*515*950#
+#TOINKTOTO*jokobodo68*224*515*607#
 ```
 #Bowoaizan
 
 ```
-#SOBATGAMING*jokoponter68*516*415*162#
+#SOBATGAMING*jokoponter68*556*552*202#
 ```
 #iyasbungsu
 
@@ -18,7 +18,7 @@
 #riskaamel
 
 ```
-#TOINKTOTO*Pacarmelisa*584*815*850#
+#TOINKTOTO*Pacarmelisa*584*815*818#
 ```
 #putriamelia
 
