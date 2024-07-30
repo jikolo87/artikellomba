@@ -1,46 +1,36 @@
 # T0gel
 
-#Rames
+```
+#TOINKTOTO*jokobodo68*703*745*407#
+```
 
 ```
-#TOINKTOTO*jokobodo68*224*515*607#
+#SOBATGAMING*jokoponter68*526*542*302#
 ```
-#Bowoaizan
 
 ```
-#SOBATGAMING*jokoponter68*556*552*202#
+#SEXYTOGEL*Pacarmelisa*743*369*984#
 ```
-#iyasbungsu
 
 ```
-#SEXYTOGEL*Pacarmelisa*943*169*984#
+#TOINKTOTO*Pacarmelisa*284*815*718#
 ```
-#riskaamel
-
-```
-#TOINKTOTO*Pacarmelisa*584*815*818#
-```
-#putriamelia
 
 ```
 #EUROTOGEL*azka553*829*402*593#
 ```
-#intanpermata
 
 ```
-#SEXYTOGEL*Jokokendil68*149*169*184#
+#SEXYTOGEL*Jokokendil68*149*169*484#
 ```
-#lindaprastika
 
 ```
-#AFCTOGEL*jokobodo68*916*113*865#
+#AFCTOGEL*jokobodo68*016*013*865#
 ```
-#nabilalip
 
 ```
-#AFCTOGEL*Pengocokhandal*416*513*315#
+#AFCTOGEL*Pengocokhandal*416*313*315#
 ```
-#dianlestari
 
 ```
 #ALADDIN666*Brengsex*423*156*857#
