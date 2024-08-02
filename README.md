@@ -24,6 +24,10 @@
 ```
 
 ```
+#EUROTOGEL*Joninur*819*432*503#
+```
+
+```
 #SEXYTOGEL*Jokokendil68*149*169*484#
 ```
 
