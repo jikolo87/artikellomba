@@ -1,14 +1,18 @@
 # T0gel
 
 ```
-#TOINKTOTO*jokobodo68*703*745*407#
+#TOINKTOTO*Chintia*703*745*407#
 ```
 
 ```
-#SOBATGAMING*jokoponter68*526*542*302#
+#TOINKTOTO*jokobodo68*709*741*407#
+```
+
+```
+#SOBATGAMING*jokoponter68*518*028*319#
 ```
 ```
-#SOBATGAMING*Andikapra*556*512*332#
+#SOBATGAMING*Andikapra*826*512*936#
 ```
 
 ```
