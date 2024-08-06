@@ -1,15 +1,15 @@
 # T0gel
 
 ```
-#TOINKTOTO*Chintia*703*745*407#
+#TOINKTOTO*Chintia*403*945*807#
 ```
 
 ```
-#TOINKTOTO*jokobodo68*709*741*407#
+#TOINKTOTO*jokobodo68*409*941*507#
 ```
 
 ```
-#SOBATGAMING*jokoponter68*518*028*319#
+#SOBATGAMING*jokoponter68*418*028*319#
 ```
 
 ```
@@ -21,27 +21,27 @@
 ```
 
 ```
-#SEXYTOGEL*Pacarmelisa*743*369*984#
+#SEXYTOGEL*Pacarmelisa*143*369*984#
 ```
 
 ```
-#SEXYTOGEL*Chintia*043*369*984#
+#SEXYTOGEL*Chintia*430*303*949#
 ```
 
 ```
-#TOINKTOTO*Pacarmelisa*284*815*718#
+#TOINKTOTO*Pacarmelisa*284*815*618#
 ```
 
 ```
-#EUROTOGEL*azka553*829*402*593#
+#EUROTOGEL*azka553*629*602*693#
 ```
 
 ```
-#EUROTOGEL*Joninur*819*432*503#
+#EUROTOGEL*Joninur*519*132*803#
 ```
 
 ```
-#SEXYTOGEL*Jokokendil68*149*169*484#
+#SEXYTOGEL*Jokokendil68*249*369*384#
 ```
 
 ```
