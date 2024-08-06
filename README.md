@@ -37,6 +37,10 @@
 ```
 
 ```
+#EUROTOGEL*Chiintia*809*502*493#
+```
+
+```
 #EUROTOGEL*Joninur*519*132*803#
 ```
 
