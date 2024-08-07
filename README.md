@@ -65,6 +65,10 @@
 ```
 
 ```
+#AFCTOGEL*Riesska*603*613*665#
+```
+
+```
 #AFCTOGEL*Chiintiaa*016*013*865#
 ```
 
