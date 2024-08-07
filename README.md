@@ -53,6 +53,10 @@
 ```
 
 ```
+#EUROTOGEL*Hendrra*329*902*793#
+```
+
+```
 #EUROTOGEL*Chiintia*809*502*493#
 ```
 
