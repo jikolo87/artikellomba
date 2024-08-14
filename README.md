@@ -1,11 +1,11 @@
 # T0gel
 
 ```
-#TOINKTOTO*Chintia*403*941*807#
+#TOINKTOTO*Chintia*403*941*907#
 ```
 
 ```
-#TOINKTOTO*Anabel*703*241*107#
+#TOINKTOTO*Anabel*703*941*107#
 ```
 
 ```
@@ -13,11 +13,11 @@
 ```
 
 ```
-#SOBATGAMING*jokoponter68*418*028*319#
+#SOBATGAMING*jokoponter68*419*029*319#
 ```
 
 ```
-#SOBATGAMING*addellia*418*023*319#
+#SOBATGAMING*addellia*918*023*319#
 ```
 
 ```
