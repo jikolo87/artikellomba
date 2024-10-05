@@ -21,7 +21,7 @@
 ```
 
 ```
-#SOBATGAMING*Chintia*914*098*319#
+#SOBATGAMING*Chintia*5601*5106*1065*5106#
 ```
 
 ```
