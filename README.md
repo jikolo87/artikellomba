@@ -125,10 +125,10 @@ cd /storage/emulated/0/pstoto/sutanto
 cd /storage/emulated/0/pstoto/vanesa
 ```
 ```
-u
+cd /storage/emulated/0/pstoto/nabilaljp
 ```
 ```
-u
+cd /storage/emulated/0/pstoto/santy
 ```
 ```
 u
