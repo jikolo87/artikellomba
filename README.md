@@ -2,6 +2,9 @@
 cd /storage/emulated/0/pstoto/adamsuwid
 ```
 ```
+cd /storage/emulated/0/pstoto/Alamsyah
+```
+```
 cd /storage/emulated/0/pstoto/aif
 ```
 ```
@@ -370,5 +373,4 @@ u
 ```
 u
 ```
-
 
