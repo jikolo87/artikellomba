@@ -131,10 +131,10 @@ cd /storage/emulated/0/pstoto/nabilaljp
 cd /storage/emulated/0/pstoto/santy
 ```
 ```
-u
+cd /storage/emulated/0/pstoto/onicha
 ```
 ```
-u
+cd /storage/emulated/0/pstoto/dianlestari
 ```
 ```
 u
